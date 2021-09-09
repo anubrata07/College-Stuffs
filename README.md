@@ -1,1 +1,1 @@
-# Collge-Stuffs
+# College-Stuffs
